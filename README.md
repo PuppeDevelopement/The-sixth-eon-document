@@ -1,2 +1,3 @@
-# The-sixth-eon-document
-What a fuckass dude ngl
+# Fuck rio.dev
+
+this is peak bro

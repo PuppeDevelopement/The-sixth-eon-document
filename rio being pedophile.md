@@ -10,6 +10,11 @@
 
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/ddce68e0-446e-47c6-b2d2-0f988dbc6d2d" />
 
+### He is admitting inself 🙏
+
+<img width="654" height="345" alt="image" src="https://github.com/user-attachments/assets/de1ec696-e0ab-4e71-81b3-3c9fbc9a5181" />
+
+
 -----------------------------------------------------------------------------------------
 
 ### Gonna add more later
